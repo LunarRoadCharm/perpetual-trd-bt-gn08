@@ -1,4 +1,4 @@
-# 
+# best binance futures bot tools is the best binance futures bot tools with webhook-support and scalping. Safe, reliable, and optimized for CEX, DEX, and algorithmic trading
 
 
 
